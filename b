@@ -1,1 +1,0 @@
-mudando toda a parada
